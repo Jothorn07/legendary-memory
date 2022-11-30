@@ -1,2 +1,0 @@
-# legendary-memory
-Thorn-s 
